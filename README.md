@@ -1,1 +1,1 @@
-# linkit-mom-privacy
+# Privacy Policy
